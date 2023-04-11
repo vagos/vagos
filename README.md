@@ -1,4 +1,4 @@
-# Evangelos Lamprou :monkey:
+# Evangelos Lamprou :gorilla:
 
 Looking to contribute on interesting projects.
 
